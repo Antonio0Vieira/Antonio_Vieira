@@ -2,7 +2,7 @@
 
 Meu nome é Antonio Maia Farias Vieira
 
-- Estou no ensino meido
+- Estou no ensino médio
 - tenho 15 anos
 - tenho interrese em mátemarica
 - estudo no polivalente Ponta Grossa
